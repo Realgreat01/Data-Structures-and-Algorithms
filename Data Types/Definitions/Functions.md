@@ -1,1 +1,1 @@
-### Defination
+### Definition
